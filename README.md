@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @LAZAROSGKOVAS
-- 👀 I’m interested in foreign girls
-- 🌱 I’m currently learning about chatgtp
-- 💞️ I’m looking to collaborate on becoming challenger
-- 📫 How to reach me Come to my house
+- 👀 I’m interested
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
   
 - ⚡ Fun fact: ...
 
